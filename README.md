@@ -1,2 +1,2 @@
 Gildong Hong
-Kookmin Univ.SW
+Kookmin Univ.SW dept.
